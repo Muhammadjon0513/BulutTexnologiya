@@ -1,0 +1,2 @@
+# BulutTexnologiya
+Test loyiha 
